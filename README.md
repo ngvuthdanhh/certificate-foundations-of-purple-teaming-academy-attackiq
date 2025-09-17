@@ -1,0 +1,1 @@
+# certificate-foundations-of-purple-teaming-academy-attackiq
